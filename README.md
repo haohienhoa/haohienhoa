@@ -1,5 +1,5 @@
 ### Hi there 👋
 I'm Nguyen Mai Hao.
-First-year student at University OF Information Teachnology.
+Student at University oF Information Technology.
 Major: Computer Science.
 Contact: nguyenmaihao2005@gmail.com
